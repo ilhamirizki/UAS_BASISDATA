@@ -54,6 +54,8 @@
 
 ![TRIGGER LKET](https://user-images.githubusercontent.com/81584642/126153673-060ba9c6-df93-447b-880d-d2d1d0a9a447.JPG)
 
+## Link video presentasi
+https://youtu.be/3oh-2iUVbGQ
 
 
 
